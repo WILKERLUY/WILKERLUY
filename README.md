@@ -1,5 +1,5 @@
 - 👋 hello, nice @wilker 
-- 👀 I like play soccer, play game, studying 
+- 👀 I like play soccer, studying 
 
 
 <!---
